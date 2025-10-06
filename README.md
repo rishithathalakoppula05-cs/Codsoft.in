@@ -1,2 +1,1 @@
-# Codsoft.in
-Internship in codsoft
+https://www.linkedin.com/posts/rishitha-thalakoppula-6246b133a_task1-to-do-list-completed-task1-of-my-codsoft-activity-7380963912550318080-NEir?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAFUtLTwBHJnbXmxhX6_xSHguwlu2mkwUbkU&utm_campaign=copy_link
